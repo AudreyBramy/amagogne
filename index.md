@@ -5,7 +5,7 @@ title: Brut de thé
 
 ![](/assets/media/accueil_1.jpg)
 
-# Construire ensemble un festival sur le Thé
+# Construire ensemble le futur de scopyleft 
 
 {% include uvp.md %}
 
