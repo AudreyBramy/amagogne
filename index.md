@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Brut de thé
+title: Amagogne
 ---
 
 ![](/assets/media/accueil_1.jpg)
