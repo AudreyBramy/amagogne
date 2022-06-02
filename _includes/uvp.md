@@ -1,5 +1,10 @@
-Du **vendredi 8 au dimanche 10 juillet 2022** nous vous proposons une résidence pour construire et préparer ensemble la première édition de **Festi'Thé** qui aura lieu du 30 septembre au 2 octobre au [parc aux bambous](https://parcauxbambous.com/).
+Du **lundi 6 au dimanche 10 juin 2022** scopyleft s'offre une résidence en Bourgogne à l'heure canadienne pour co-construire et préparer ensemble le futur de scopyleft.
 
-Ce sera l'occasion de s'organiser et de construire les valeurs et les objectifs de ce festival.
+*NB : dans l'intention, ceci est un point de départ pour amorcer le séjour, on aimerait bien que chacun·e se sente libre de [modifier/corriger/compléter/transformer...](https://github.com/pntbr/amagogne/edit/main/_includes/uvp.md)*
 
-Et aussi un moment de convivialité pour apprendre à mieux se connaître et déguster du thé ensemble.
+Deux thèmes semblent désirer éclore pour se faire apprivoiser par les personnes présentes
+(en visio ça marche aussi) :
+
+> Quelles pourraient-être les valeurs que l'on souhaiterait cultiver ensemble ?
+
+>  Développer une activité économique commune à co-construire en paralèlle de beta.gouv ?
