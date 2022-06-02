@@ -5,5 +5,6 @@ Du **lundi 6 au dimanche 10 juin 2022** scopyleft s'offre une résidence en Bour
 Deux thèmes semblent désirer éclore pour se faire apprivoiser 🐣 par les personnes présentes
 (en visio ça marche aussi) :
 
-- Quelles pourraient-être les valeurs que l'on souhaiterait cultiver ensemble ?
-- Développer une activité économique commune à co-construire en paralèlle de beta.gouv ?
+>  Quelles pourraient-être les valeurs que l'on souhaiterait cultiver ensemble ?
+
+>  Développer une activité économique commune à co-construire en paralèlle de beta.gouv ?
