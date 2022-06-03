@@ -11,51 +11,22 @@ Du **lundi 6 au samedi 11 juin 2022** scopyleft s'offre une résidence en Bourgo
 
 ## Courses 
 - Dijon  : biocoop samedi 3 après-midi
-- ?
 
-### épicerie
-- 10 tablettes chocolats : noir et moins noir
-- fruits secs : amandes, noisettes, raisins secs
-- purée d'amande
-- pate à tartiner
-- menthe, basilic
-- farine (petit épeautre)
-- Tahin
-- huile d'olive
-- vinaigre
-- miso
-- ?
+### Liste
+- Du CHOCOLAAAAATTTTTTTTTT (avec une tite pref pour le noir)
+- Du chocolat à cuire (pour gâteau, mousse au chocolat, et autre)
+- pois chiches en boites (au moins deux de 400 gr -- houmous et mousse)
+- léguuuummmeeessss
+- herbes (persil, menthe, coriandre, etc.) un peu tout ce qu'il y a :)
+- salades
+- des pâtes de lasagnes sans gluglu (si ça tente Violaine d'en faire avec moi <3 ) 
+- de la levure maltée
+- des tomates à coulis (fraiches ou en boites)
+- du lait de soja nature (1L)
+- du lait de soja vanillé (1L)
+- du yaourt de soja
+- des protéines de soja texturées 
+- du miso
+- de la sauce soja
+- épice : cumin, origan sêché
 
-### fruits
-- pomme
-- poire
-- banane
-- citron
-- ?
-
-### légumes
-- tomates
-- courgettes
-- concombre
-- pomme de terre
-- lentilles corail
-- pois chiche
-- kumbu
-- champignons
-- salade
-- ?
-
-### fromages
-- fromage blanc brebis
-- tomme brebis/chèvre
-- ?
-
-### poissons/viandes
-(un tout petit peu)
-- lottes
-- crevette
-- porc
-- poulet
-- oeufs
-- ?
-  
