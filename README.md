@@ -11,3 +11,51 @@ Du **lundi 6 au samedi 11 juin 2022** scopyleft s'offre une résidence en Bourgo
 
 ## Courses 
 - Dijon  : biocoop samedi 3 après-midi
+- ?
+
+### épicerie
+- 10 tablettes chocolats : noir et moins noir
+- fruits secs : amandes, noisettes, raisins secs
+- purée d'amande
+- pate à tartiner
+- menthe, basilic
+- farine (petit épeautre)
+- Tahin
+- huile d'olive
+- vinaigre
+- miso
+- ?
+
+### fruits
+- pomme
+- poire
+- banane
+- citron
+- ?
+
+### légumes
+- tomates
+- courgettes
+- concombre
+- pomme de terre
+- lentilles corail
+- pois chiche
+- kumbu
+- champignons
+- salade
+- ?
+
+### fromages
+- fromage blanc brebis
+- tomme brebis/chèvre
+- ?
+
+### poissons/viandes
+(un tout petit peu)
+- lottes
+- crevette
+- porc
+- poulet
+- oeufs
+- ?
+  
