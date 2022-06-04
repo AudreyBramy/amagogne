@@ -51,10 +51,22 @@ Du **lundi 6 au samedi 11 juin 2022** scopyleft s'offre une résidence en Bourgo
 - salade
 - ?
 
+### épicerie
+- amande, noix, noisettes...
+- purée d'amande
+- tahin
+- lait de coco
+- café
+- huile d'olive
+- farine de petit épautre / sarrasin (j'en avais pas chez moi :()
+- pain
+- levure
+- sel
+
 ### fromages
-- fromage blanc brebis
+- fromage blanc brebis ou yaourt à la grecque de brebis
 - tomme brebis/chèvre
-- ?
+- chèvre mi frais...
 
 ### poissons/viandes
 (un tout petit peu)
@@ -73,7 +85,7 @@ Du **lundi 6 au samedi 11 juin 2022** scopyleft s'offre une résidence en Bourgo
 - léguuuummmeeessss
 - herbes (persil, menthe, coriandre, etc.) un peu tout ce qu'il y a :)
 - salades
-- des pâtes de lasagnes sans gluglu (si ça tente Violaine d'en faire- avec moi <3 )
+- des pâtes de lasagnes sans gluglu (si ça tente Violaine d'en faire- avec moi <3 ) Yeahhh !
 - de la levure maltée
 - des tomates à coulis (fraiches ou en boites)
 - du lait de soja nature (1L)
