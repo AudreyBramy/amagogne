@@ -65,6 +65,9 @@ Cette liste de sujets est proposée pour inspirer sans attente de réalisation.
 - qui veut faire quoi avec combien de disponibilité ?
 - lister nos savoirs-faire, savoirs-être ?
 - un backlog pour l'année ?
+- aider des projets par l'embauche (pourquoi ? pour qui ? quel risque ?)
+- Vie perso et vie pro ? Et comment passer plus de temps ensemble sans mettre à mal notre vie perso ?
+- Avoir une autre activité (salariée) à côté de scopyleft, pourquoi ? est-ce possible ?
 - etc.
 
 ## Consignes
